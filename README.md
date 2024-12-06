@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @thetai2004
+- 👋 Hi, I’m NGUYEN THE TAI
 - 👀 I’m interested in crypto
 - 🌱 I’m from vietnamese and working in malaysian
 - 💞️ I’m single
